@@ -48,6 +48,8 @@ Actively exploring new blockchain ecosystems, contributing to communities, testi
 
 ## 🤝 Connect
 
+join me guys
+
 Feel free to follow my journey, contribute to discussions, and collaborate on exciting Web3 projects.
 
 ### "The future is decentralized."
